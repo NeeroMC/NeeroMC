@@ -1,5 +1,5 @@
-- 👋 Hi, i'm @NeeroMC.
-- 👀 My Discord : Neero#0049
+- 🌐 My Discord : Neero#0049
+- 🧱 The servers for which I am currently working : Exonia
 
 
-![Github](https://www.laboiteverte.fr/wp-content/uploads/2015/05/gif-anime-space-Cento-Lodigiani-01.gif)
+![Github](https://images7.alphacoders.com/110/thumb-1920-1108495.png)
